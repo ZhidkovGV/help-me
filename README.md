@@ -6,6 +6,7 @@ P.S. Ofc it's not a solution, but i have no idea how to solve it. Yet
 
 
 ЗАПУСКАЕМ 
+
 ТЕСТ░▄▀▀▀▄░РАБОТЯГИ░░
 
 ▄███▀░◐░░░▌░░░░░░░
